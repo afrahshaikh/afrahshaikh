@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **afrah02shaikh@gmail.com and https://www.linkedin.com/in/afrah-shaikh-9560/**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1oAVpyV5SwdiC_9CoQhOgEF2st5o9C7nV/view?usp=sharing](https://drive.google.com/file/d/1oAVpyV5SwdiC_9CoQhOgEF2st5o9C7nV/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1HeL8b3VuZ4LaUhSkcaDBK70qY9qsx4Q4/view?usp=share_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
